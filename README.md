@@ -1,2 +1,2 @@
 # taresh_resume
-My Latest Resume (Last edited 6th June, 2023)
+My Latest Resume (Last edited 15th September, 2023)
